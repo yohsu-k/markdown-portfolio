@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+1. トロピカーナ
+2. リプトンティー
+3. ネスプレッソ
+   1. キンボ
+   2. カフィタリー
